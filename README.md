@@ -1,1 +1,1 @@
-Founder of Spatio.
+Founder of Spatio DAO.
